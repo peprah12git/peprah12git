@@ -3,7 +3,7 @@
 - 🌱 I’m currently persuing BSC Computer Science
 - 💞️ I’m looking to collaborate on real world project as well
 - 📫 feel free to reach me on linkdin on....
-- and via email emmanuel.mensah038@stu.ucc.edu.gh
+- and via email peprahee.417@gmail.com
 
 
 <!---
